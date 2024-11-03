@@ -11,7 +11,7 @@
 
 
 
-- my name is Wang Yunlong .I'm a second year master in NWPU,Undergraduate at Taiyuan University of Technology
+- my name is Wang Yunlong. I am currently pursuing a doctoral degree at NWPU.
 
 
 
